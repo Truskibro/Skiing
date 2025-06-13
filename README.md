@@ -7,6 +7,7 @@ This repository documents my journey as a nationally ranked mogul skier represen
 ## 🏆 Career Highlights
 
 - 🥉 **3rd Place** – Spanish National Moguls Championship (Sierra Nevada, Spain, 2025)
+  📸 [RFEDI Article – Spanish Moguls Championship 2025](https://rfedi.es/lucas-verdaguer-y-erika-ruiz-campeones-de-espana-de-moguls-en-sierra-nevada/)
 - 🇺🇸 **Top 50 National Ranking** – U.S. Freestyle Moguls (U17 Division)
 - 🎿 **Ski & Snowboard Club Vail Commitment Award**, 2024
 - 🗓️ Multi-season commitment to full-time training and travel across North America and Europe
